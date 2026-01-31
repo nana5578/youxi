@@ -1,7 +1,6 @@
 # 传奇发布网
 
-## 推荐 [>>>百万人在线经典传奇入口<<<](http://mtbaidu.com/chuanqi)。
-## 推荐 [>>>传奇开服时间网查询入口<<<](http://mtbaidu.com/chuanqikaifu)。
+
 
 - **推荐**: [>>>百万人在线经典传奇入口<<<](http://mtbaidu.com/chuanqi)
 - **查询**: [>>>传奇开服时间网查询入口<<<](http://mtbaidu.com/chuanqikaifu)
